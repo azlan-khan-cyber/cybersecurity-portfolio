@@ -1,4 +1,4 @@
-# cybersecurity-portfolio# Azlan Khan | Cybersecurity Portfolio
+# Azlan Khan | Cybersecurity Portfolio
 
 ## About Me
 
